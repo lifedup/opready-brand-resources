@@ -1,5 +1,4 @@
 # OpReady Brand Resources
-
 By using OpReady's trademarks and resources, you agree to follow our brand and trademark guidelines - as well as our Terms of Service and all other rules and policies that can be found on our website at https://www.opready.com/policies/
 
 ## Up to date brand guidelines
